@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bull9016
+- 👋 Hi, I’m @Bhargav_reddy_k
 - 👀 I’m interested in ML,AI and ELON MUSK 
 - 🌱 I’m TRYING TO LEARN EVERYTHING AND ML
 - 💞️ I’m looking to collaborate on ...
